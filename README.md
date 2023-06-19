@@ -1,1 +1,1 @@
-<a href="https://dudaodograu.github.io/dudao/lol.html" amogus>
+<a href="https://dudaodograu.github.io/dudao/lol.html">
