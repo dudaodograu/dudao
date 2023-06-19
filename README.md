@@ -1,1 +1,1 @@
-<a href="https://dudaodograu.github.io/dudao/lol.html">
+<a href="https://dudaodograu.github.io/dudao/Slides/lol.html">
